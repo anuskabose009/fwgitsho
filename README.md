@@ -1,2 +1,2 @@
 # fwgitsho
-to be a coder
+hellow! i am come again to develop my skills
